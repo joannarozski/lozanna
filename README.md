@@ -1,0 +1,2 @@
+# lozanna
+Softaware ploski
